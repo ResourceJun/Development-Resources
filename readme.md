@@ -1,4 +1,4 @@
-这里分享开发者教程资源
+这里分享各种教程资源
 
 人工智能、机器学习、深度学习【19天直播课】链接: https://pan.baidu.com/s/1Qld7893VhVMlDnjgZn0tew 提取码: k331
 
